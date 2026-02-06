@@ -8,8 +8,7 @@ All coupon information listed here is **verified from CouponTerra** to ensure ac
 👉 **TX3Futures Official Promo Code List**  
 https://www.couponterra.com/coupons/tx3futures.com  
 
-👉 **TX3Futures Official Checkout Page**  
-https://futures.tx3markets.com/checkout/ref/94/?add-to-cart=1495  
+👉 [TX3Futures Official Checkout Page](https://futures.tx3markets.com/checkout/ref/94/?add-to-cart=1495)    
 
 ---
 
